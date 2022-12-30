@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IsaBiaVC
+- 👀 I’m interested in selfdevelopment, economics and technologies.
+- 🌱 I’m currently learning programming.
+- 💞️ I’m looking to collaborate in the construction of innovative and sustainable solutions for the problems of the present and the future.
+- 📫 How to reach me: instagram- isabia_ / email- Isabela2005beatriz@gmail.
